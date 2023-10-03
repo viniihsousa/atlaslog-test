@@ -18,9 +18,13 @@ Adicionar video e documentos nessa seção
 https://miro.com/miroverse/5-ws-and-an-h/
 
 
-Resultados esperados 
+
+[Crescimento Exponencial.pdf](https://github.com/viniihsousa/atlaslog-test/files/12795330/Crescimento.Exponencial.pdf)
+
 
  
+ 
+Resultados esperados 
 
 Será utilizado como base para a tomada de decisão estratégica, impulsionando assim a matriz logística do Aeroporto SJK.  
 
