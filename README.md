@@ -16,3 +16,26 @@ Adicionar video e documentos nessa seção
 
 
 https://miro.com/miroverse/5-ws-and-an-h/
+
+
+Resultados esperados 
+
+ 
+
+Será utilizado como base para a tomada de decisão estratégica, impulsionando assim a matriz logística do Aeroporto SJK.  
+
+Alterar a movimentação de diferentes tipos de mercado em toda a região. 
+
+Viabilizar novos produtos. 
+
+Desenvolvimento de novos tipos de cadeias de abastecimento. e/ou produtivas utilizando o transporte multimodal rápido e eficaz. 
+
+Impulsionamento e crescimento do Aeroporto SJK. 
+
+Aumentar a visibilidade em nível empresarial para a região. 
+
+Diminuir tempo de movimentação. 
+
+Incentivo ao crescimento da cidade. 
+
+Gerar novas oportunidades de emprego com base na utilização constante do aeroporto. 
