@@ -22,6 +22,8 @@ https://miro.com/miroverse/5-ws-and-an-h/
 [Crescimento Exponencial.pdf](https://github.com/viniihsousa/atlaslog-test/files/12795330/Crescimento.Exponencial.pdf)
 
 
+[Documentação - Cap. 03.docx](https://github.com/viniihsousa/atlaslog-test/files/12849641/Documentacao.-.Cap.03.docx)
+
  
  
 Resultados esperados 
